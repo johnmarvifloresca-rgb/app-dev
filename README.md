@@ -36,5 +36,5 @@ The show is known for its nostalgic 80s references, thrilling plot twists, and m
 [Stranger Things](https://www.netflix.com/)
 [Stranger Things](https://www.imdb.com/)
 
-###Image
-![Strenger Things](https://resizing.flixster.com/Owpm25O_9oTkb1WufoBzmKeyS9w=/206x305/v2/)
+### Image
+![Strenger Things](https://occ-0-8407-2218.1.nflxso.net/dnm/api/v6/6AYY37jfdO6hpXcMjf9Yu5cnmO0/AAAABer7SeWc6FvkBqWtk61GwL7rshAEVCOARQZVTEJGnLXykYBlO4nbbr6gs7M650BjULuaN6hucXKr5xY2iqPAajrxXd70HawdJeuD.jpg?r=608)
